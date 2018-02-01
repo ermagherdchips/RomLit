@@ -60,9 +60,13 @@
 
 
 Social criticism including a literary criticism in itself
+
 Letters and who writes them and their status within texts - linking Wollstonecraft with Austen in a technical way
+
 How does one criticise society in a fictional structure which reinforces stereotypes? 
+
 Fictionality - looking for what's imposed or retained at the end of the story? Or more concerned with the awkwardnesses and difficulties within it?
+
 Complication of the fictive - everything resolved by a stroke of magic rather than a behavioural relationship progression?
 
 
